@@ -30,7 +30,7 @@ This reframes “uncertainty” as not just a risk to mitigate, but a strategic 
 
 For PMC’s case, this suggests their organization design must match where they are on that path—not just their current size or product type.
 
-
+bushe@sfu.ca
 
 ## Not sent yet
 

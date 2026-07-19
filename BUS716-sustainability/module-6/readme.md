@@ -442,7 +442,7 @@ supply chains connect us to modern slavery more than you think
 
 Business of modern slavery
 - the more we understand wha tmodern salvery looks like on the ground the more we will be able to design intervention to detect it
- - business models of modern slavery have evolved
+- business models of modern slavery have evolved
 
 ![](/BUS716-sustainability/module-6/img/business_models.png)
 

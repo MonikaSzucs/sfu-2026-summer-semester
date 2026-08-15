@@ -17,3 +17,4 @@ Olivia Moore (a16z) — "GMV Retention: The Marketplace Metric Most Ignore"Links
 [GMV Retention: The Marketplace Metric Most Ignore](https://a16z.com/gmv-retention-the-marketplace-metric-most-ignore/)
 
  
+ 
